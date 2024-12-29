@@ -1,0 +1,5 @@
+site_name: Homonomicon
+site_url: https://absolutewisp.github.io/homonomicon
+theme:
+  name: material
+
