@@ -26,3 +26,33 @@ At the dawn of the McDonald's opening garlic night deals, a vampire bought a reg
 Text was written only in the language of Japanese, concerning only dwarves, and to make meows more commonplace, the dwarvanese language was popularised for use by ancient civilisations (cats) that never liked other foods than garlic sauce containing garlic garlic garlic sold by garlic McDonald's vampires who banished garlic into the shadow realm using garlic powered ritual altars.
 
 This led to the garlicception meowing of cats during meowfest 1997 which was known as the incident of 1997 meowfest. "mrrp :3" said that barking faker moths, now legends, were twice meowed by three cats thrice during April 1998 on meowfest 1998. This year will be the tenth meowfest anniversary of this 2197 holiday bringing Gloryhammer and Apocalypse 1992, everyone's least favourite Baldur's boulders fanbase convention (not to mistake with the hit album Apocalypse 1992). So says Count Bleck, the prophet of garlic town saucology vampires™️. His protege Jimbob The Third was overshadowed by Jimbob the Fourth (Gourht in some translations) and Vampirina DeGarlic. Together they made The Meow™️, a commercial ancient power used by cats commercially for barking purposes for $2.99/month (fucking capitalism). This was before they unionised. Fucking communism - oh well.
+
+
+## 1:4
+
+Die, monster!  
+\- Gabriel
+
+What power is that?? TIN!?!??! Polyethylene???
+
+V1, you literally insignificant fucking socialist!
+
+### TIN
+
+### TIN
+
+### CAN
+
+### CAN
+
+### *AAAAAAAAAAAAAAAAAAAAAAAA*
+
+### *BBBBBBBBBBBBBBBBBBBBBBBBB*
+
+said Count Bleck in his prophecy of microwaves slightly less divine than Gabriel's Balatro prophecy was. The almighty Esq. . (that's his title.) (it's very important.). Has though mrrp'd?
+
+So sayeth Count Bleck, perchance replied. Perchance.
+
+### MUSHROOM
+
+for Dwarvanese stew. President Management Man is said to like it like that. However, after eating all of it, he explonded into a singular mushroom. "This was anticlimactic" - so sayeth Gount Gleck, the evil brother to Count Bleck, who wrote the Heteronomicon.

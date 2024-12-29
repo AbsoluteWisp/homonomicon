@@ -1,5 +1,60 @@
 site_name: Homonomicon
+site_description: A divine work written collectively, one word at a time.
 site_url: https://absolutewisp.github.io/homonomicon
+copyright: "(c) 2024 Members of the BenBonk Games Discord server"
+
+repo_url: https://github.com/absolutewisp/homonomicon/
+repo_name: absolutewisp/homonomicon
+
 theme:
+  language: en
   name: material
 
+  palette:
+    # Auto, goes to light
+    - media: "(prefers-color-scheme)"
+      toggle:
+        icon: material/brightness-auto
+        name: Switch to light mode
+
+    # Light, goes to dark
+    - media: "(prefers-color-scheme: light)"
+      scheme: default
+      primary: custom
+      accent: custom
+      toggle:
+        icon: material/brightness-7
+        name: Switch to dark mode
+
+    # Dark, goes to auto
+    - media: "(prefers-color-scheme: dark)"
+      scheme: slate
+      primary: custom
+      accent: custom
+      toggle:
+        icon: material/brightness-4
+        name: Switch to automatic mode
+  icon:
+    repo: simple/github
+
+  features:
+    - navigation.tabs
+    - navigation.tabs.sticky
+    - navigation.indexes
+
+markdown_extensions:
+  - toc:
+      permalink: true
+      toc_depth: 2 # Only chapter headings, not internal headings used as text styling in original messages
+      title: Page contents
+  - admonition
+  - tables
+  - attr_list
+  - pymdownx.details
+  - pymdownx.superfences
+  - pymdownx.emoji:
+      emoji_index: !!python/name:material.extensions.emoji.twemoji
+      emoji_generator: !!python/name:material.extensions.emoji.to_svg
+
+extra_css:
+  - styles/theme.css
