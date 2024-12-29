@@ -1,10 +1,20 @@
 site_name: Homonomicon
-site_description: A divine work written collectively, one word at a time.
+site_description: A divine work.
 site_url: https://absolutewisp.github.io/homonomicon
 copyright: "(c) 2024 Members of the BenBonk Games Discord server"
 
 repo_url: https://github.com/absolutewisp/homonomicon/
 repo_name: absolutewisp/homonomicon
+
+nav:
+  - Home:
+    - Home: index.md
+  - Book:
+    - Book: book/index.md
+    - First edition: book/first-edition.md
+  - About:
+    - About: about/index.md
+    - about/authors.md
 
 theme:
   language: en
