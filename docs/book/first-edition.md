@@ -56,3 +56,7 @@ So sayeth Count Bleck, perchance replied. Perchance.
 ### MUSHROOM
 
 for Dwarvanese stew. President Management Man is said to like it like that. However, after eating all of it, he explonded into a singular mushroom. "This was anticlimactic" - so sayeth Gount Gleck, the evil brother to Count Bleck, who wrote the Heteronomicon.
+
+## 1:5
+
+Bart The Great, when the world was young, there was only him and the bartender. Dell of Laptops fame soon arrived (Who was also a bartender) and ended the void, creating gay. amen. Not long after Turkeys (the countries (plural)) were summoned, Gary G. Gamesson was Gamessoned and created garlic sauce made with garlic garlic garlic and that weird thing I found in the Basement of Isaac.. hmmmm. Smells like carpet cleaner 3000™ is The brand New skin Coloured carpet (don't mind the "cleaner" in the name corporate messed it up) buy it for only 20000 garlic coins (you call them Vietnamese Dong). Gay rat owns them during may party (1837) (colorized, somehow) after yesterday but not tomorrow only yesterday not including the overmorrow exception is Wednesday nights gay people eat a lot of mangoes apparently.

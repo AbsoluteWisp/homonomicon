@@ -2,6 +2,8 @@ The Homonomicon is an sacred work of epic proportions, written by a few people o
 
 ## Updates
 
+- **30 XII 2024**
+    - Chapter 1:5 added
 - **29 XII 2024**, a little later
     - Full site structure created
     - Basic About pages written
