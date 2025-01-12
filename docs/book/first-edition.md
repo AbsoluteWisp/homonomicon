@@ -64,3 +64,94 @@ Bart The Great, when the world was young, there was only him and the bartender. 
 ## 1:6
 
 Prophet Bobert the 11th has spoken: "Lesbians." He himself would come to Grillby's and speak "Lesbians" all night long. Occasionally when others approached, he would say "Lesbians" but everyone replied with "Lesbeans :3", thus outgaying the Prophet herself. incredible. amazing. Such wow. Anyways, once the people had given GarlicCoin™️ to Jod, I called in with the HR department to report death of probably something important. Oh right, it was uh.... uncle frank, may be beneficial to salmons and slim jims and maybe possibly even my very own carpet bomb 64 ds GAY! edition. However, this also gays the industrial revolution of lesbians doing farming is gay. The tax evaders have arrived, praise the tax evaders and lesbians and enbeans. Amen. Let's eat Grandma's baking tray of garlic garlic garlic, the ultimate food food food because Garlic paste was the goat of yummy food, simply perfection, I, the Great Count Bleck, hereby sentence vampires to a lifetime of garlic production because garlic supplies have been running out (i eated them all). Business Destroyer is capitalism's bane, therefore I am death incarnate, the third ruler of legions of gays. Gayificer muahahahga. Seven. Seven. Seven. Seven. Seven. Garlics. Garlics. Garlics. Garlics. Garlics, this is revolutionary vocabulary Garlics. happy Garlics. we Garlics. are garlics. That's right!, All Garlics! It's In your Warranty! This is the time to release Deltarune so buckle up your eyeballs and wishlist Ultrakill NOW maggot *rocket jump and patriotism noises*. Reminds me of Quake Champions from ash grove to west Virginia we gay, we meow, but we also beep like a sheep or perhaps sleepy protogen cat or marten luther king jr day concerning recent developments related to angry schools banning gayificers, meowers, and woofserkers for stanly parebel. Gay Gay Gay Gay homosexual garlic Gay, Count Bleck said, while preparing super paper mario 2 gayly edition with Tempura nuggets (yummy) (delicious, even)
+
+## 1:7 \[PICTOGRAPHIC\]
+
+📏 ❓ 🚫 🧄 🏳️‍🌈 ☑️ ✅ 🇬 🇦 🇾 ‼️  
+👏  
+🧄 🧄 🧄  
+👏  
+🗨️ 🐟  
+💬 :benbonk-smotes: ‼️  
+👏  
+:benbonk-sillygoof: :benbonk-sillygoof: :benbonk-3c: :benbonk-sillygoof: :benbonk-sillygoof:  
+👏  
+🥨 ❓  
+🇬 🇦 🇾 ❗  
+🇬 🇦 🇷 🇱 🇮 🇨 ‼️  
+🧄 🧄 🧄 🧄 🧄 🧄 🧄 🏳️‍🌈  
+👏👏  
+🧛 ❓  
+🏳️‍⚧️ 🧄 ‼️  
+💥  
+👏  
+🎮  
+🕺  
+💃  
+⬆️  
+🏳️‍⚧️ ❗  
+🏳️‍🌈 ❗  
+👏  
+🧑‍🌾  
+🧄 🧑‍🌾  
+🧄 🧄 🧑‍🌾  
+🧄 🧄 🧄 🧑‍🌾  
+👏  
+:benbonk-Ralsei: 🧄 ❓  
+:benbonk-Ralsei: ✍️ ✅  
+:benbonk-Ralsei: 💬 🐟  
+🧄  
+🧄 🧄  
+🧄 🧄 🧄 🪿  
+🪿 🗣️  
+🔨 🪿  
+🪿 💀  
+🔨 🪿 :utility-space: :utility-space: :utility-space: 🧑‍🌾 💨   
+🪿 :benbonk-Blue:  
+👏  
+🦊  
+🦊 🕚  
+🦊 :benbonk-3c:  
+🦊 💻  
+🦊 💻 :utility-space: :utility-space: :utility-space: 🖥️ 🦊  
+🦊 🎮 ⚔️ 🦊  
+🦊 🟰 🏳️‍⚧️ :benbonk-true:  
+🦊 👍 :utility-space: :utility-space: :utility-space: 👍 🦊  
+🦊 🙏 🏳️‍🌈  
+🏳️‍🌈 👍 🦊   
+🦊 📱 🏳️‍🌈  
+🏳️‍🌈 📱 🦊  
+👏  
+:benbonk-Blue:  
+:benbonk-true:  
+🟦 :benbonk-Blue:  
+⬜ :benbonk-true:  
+:benbonk-Yes:  
+🎬 :benbonk-OkayChamp: 🧄  
+🔄  
+🚲  
+🚲 ⏪  
+🚲💥🧛  
+💀 🚲  
+🚲 🪿  
+:benbonk-cowabummer: 🚲  
+🧑‍🌾 :utility-space: :utility-space: :utility-space: 🪿 🚲 💨  
+🪿 👉 🤸‍♂️ 🚲  
+🧑‍🌾 👉 💀  
+🍴 🪿  
+🚲 :utility-space: :utility-space: :utility-space: 🧑‍🌾 ❗  
+🍗 🧑‍🌾 🚲  
+👩‍🌾 ❤️ 👩‍🌾 🟰 🏳️‍🌈  
+🍗 🧑‍🌾 🚲 :utility-space: :utility-space: :utility-space: 👈 👩‍🌾 👈 👩‍🌾 ‼️  
+👏  
+👩‍❤️‍💋‍👩 🏳️‍🌈 ‼️  
+🕶️ 🟰 🍥 👄 🍥  
+🏳️‍🌈 🫃 ❗  
+👏  
+:benbonk-Ralsei: 💬  
+🐟 🗼 💥  
+🍣  
+🗼✈️  
+🐟 🧄 ✈️  
+🧄 🛬 🏢  
+🐟 🧳 🧄 🧳  
